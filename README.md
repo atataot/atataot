@@ -4,8 +4,8 @@
 🗻I want to appreciate the magnificence of the mountains
 🌌I want to feel the mystery of the starry sky
 🫤But I'm afraid of social interaction
-🤯My English is not good either
-
+🤯My English is not good
+![Uploading 银河42o4l大.jpeg…]()
 
 <!--
 **atataot/atataot** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
